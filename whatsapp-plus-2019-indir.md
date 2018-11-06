@@ -6,7 +6,7 @@ description: WhatsApp Plus 2019 son sürümünü indir-yukle. Reklamsız ve ücr
 <h1>WhatsApp Plus 2019 İndir</h1>
 WhatsApp Plus 2019 son sürümünü sitemizden indir ve yukle. Reklamsız ve ücretsiz WhatsApp profiline bakanları gör. Sitemizde paylaşacağımız Plus sürümü ve versiyonu özel olarak modlanmıştır. Diğer sitelerde gözüken özelliklerin aynısı ve çok daha fazlasını burada sizlerle paylaşacağız. Normal WhatsApp Plus ve GbWhatsApp modlarına ekstra özelliklerin eklendiği bu yama bütün dilleri destekler. Bu iletişim uygulaması sayesinde sizler de arkadaşlarınıza temalarınızı vesaire göstererek ilgi çekebilirsiniz.
 <center>
-  <img width="198" height="112" src="http://awordcevaplari.club/whatsapp-plus-2019.jpg"/>
+  <img width="178" height="102" src="http://awordcevaplari.club/whatsapp-plus-2019.jpg"/>
 <table class="width= %100" style="margin-bottom: 7px;">
 <tbody>
 <tr>
