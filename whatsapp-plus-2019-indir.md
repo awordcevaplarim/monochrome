@@ -40,8 +40,8 @@ WhatsApp Plus 2019 son sürümünü sitemizden indir ve yukle. Reklamsız ve üc
 </tbody>
 </table>
 
-<a href="https://www.mediafire.com/file/nce2wacnw7u8hod/WA%2B2-v6.56_www.whatsappmods.net+%40Abo2Sadam.apk"><span style="color:blue;">İndir 1 (44MB)</span></a><br>
-<a href="http://www.mediafire.com/file/e67q1330x1gdg50/WA%2B3-v6.56_www.whatsaoomods.net+Abo2Sadam.apk"><span style="color:blue;">İndir 2 (44MB)</span></a><br></center>
+<a target="_blank" rel="nofollow" href="https://www.mediafire.com/file/nce2wacnw7u8hod/WA%2B2-v6.56_www.whatsappmods.net+%40Abo2Sadam.apk"><span style="color:blue;">İndir 1 (44MB)</span></a><br>
+<a target="_blank" rel="nofollow" href="http://www.mediafire.com/file/e67q1330x1gdg50/WA%2B3-v6.56_www.whatsaoomods.net+Abo2Sadam.apk"><span style="color:blue;">İndir 2 (44MB)</span></a><br></center>
 
 İndir 1 ve İndir 2 linklerinin ikisinden de <strong>WhatsApp Plus 2019</strong> indirirseniz tek telefonda 2 ayrı WhatsApp hesabı kullanabilirsiniz. Yani 1 tane kullanmak istiyorsanız sadece birini indirmeniz yeterlidir.
 
