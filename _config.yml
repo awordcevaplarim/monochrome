@@ -4,8 +4,7 @@ description: "A Word Cevapları. Kelime Oyunu Bütün Cevapları 1'den 1800'e ka
 url: "http://awordcevaplari.club"
 author:
   name: "A Word"
-  email: aword@awordcevaplari.club
-  url: "http://awordcevaplari.club"
+  url: "https://awordcevaplari.club"
 
 # Build settings
 baseurl: / # Change this to your relative path (ex: /blog/), or leave just a /
